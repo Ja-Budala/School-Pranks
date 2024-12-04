@@ -27,6 +27,5 @@ This tool shuts down any device. Just type in the Private IP.
 This tool is used to get your Private IP.
  Idk why you would need instructions for this but ok
 
-
-These are all the tools.
- DM me on Discord if you have more Prank Ideas: jabudala or jabudalax2
+ 💬DM me on Discord if you have more Prank Ideas: jabudala or jabudalax2💬
+ 💬Join my DISCORD: https://discord.gg/59JfzsT9hF💬
